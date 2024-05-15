@@ -8,4 +8,4 @@
 
  
  
- ***[TAP HERE YOU OPEN NEW BLACK PANTHER  REPO](https://github.com/ibrahimaitech/BLACK-PANTHER-XMD)***
+ ***[TAP HERE YOU OPEN NEW BMW MD  REPO](https://github.com/ibrahimaitech/BMW-MD)***
